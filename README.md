@@ -1,3 +1,6 @@
+Keep doing great....
+We are going well
+
 - 👋 Hi, I’m @Damovintrain
 - 👀 I’m interested in software enineering
 - 🌱 I’m currently learning how to use github
